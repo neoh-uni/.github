@@ -1,1 +1,1 @@
-University related coursework
+University related coursework with public upload requirements
